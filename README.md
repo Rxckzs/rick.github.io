@@ -1,4 +1,15 @@
-# Social-/Gameprofiles
+# Hello im Rxckzs aka. Rick
+## You probably wont know me.
+### But it can change.
 
-## https://www.roblox.com/users/1922879507/profile
-## https://www.youtube.com/@rxckblx
+I will leave some links to my Social Medias or Gameprofiles down there
+Social Media
+======
+
+
+
+
+
+
+Games
+------
