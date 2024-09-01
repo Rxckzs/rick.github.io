@@ -51,6 +51,8 @@ Socials
 [Tiktok](https://www.tiktok.com/@.frenter)
 
 
+![ascii-art](https://github.com/user-attachments/assets/7ed857d6-3c86-4694-8707-cf7a08585f64)
+![noFilter](https://github.com/user-attachments/assets/5a24f3b8-ce27-44db-a439-4de096b62504)
 
 
 Games
